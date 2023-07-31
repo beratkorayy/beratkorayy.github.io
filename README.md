@@ -1,1 +1,0 @@
-# beratkorayy.github.io
